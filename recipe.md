@@ -1,7 +1,7 @@
-#French Toast
-
-This vegan French toast is a perfect mix of sweet and savoury a great easy brunch to impress your family and friends.
-
-###INGREDIENTS
-
 ###DIRECTIONS
+
+- Put all the ingredients except the bread, oil and banana into a blender and whiz together until smooth. Pour into a wide bowl with a flat bottom and soak the bread in this mixture, moving it around and turning, making sure that the bread really absorbs the liquid.
+
+- Put a non-stick pan on a high heat, add the oil and spread around the pan. Once hot, reduce the heat to medium-high and add a couple of slices of the loaded bread. Fry for few minutes on each side, until the bread starts to turn golden on the outside. Once both sides are crispy, remove from the pan. Repeat till all you French toast is done.
+
+- Prepare your caramelised bananas while the French toast is cooking. Peel the bananas and cut them in half lengthways, then in half the other way, giving you four pieces from each banana. Put a fry pan on a high heat, then add the bananas and dry-fry for a couple of minutes on each side until they start to char and smell amazing. Serve on top of your French toast, with a drizzle of maple syrup, some berries/other fresh fruit or whatever you fancy.
