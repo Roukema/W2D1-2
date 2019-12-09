@@ -5,7 +5,7 @@ This vegan French toast is a perfect mix of sweet and savoury a great easy brunc
 ###Ingredients
 
 [-] 2 tbsp olive oil  
-[-]200 ml almond or rice milk  
+[-] 200 ml almond or rice milk  
 [-] 2 tbsp almond butter  
 [-] 2 tbsp maple syrup  
 [-] a pinch of sea salt  
