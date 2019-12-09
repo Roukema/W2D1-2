@@ -1,8 +1,8 @@
-#French Toast
+# French Toast
 
 This vegan French toast is a perfect mix of sweet and savoury a great easy brunch to impress your family and friends.
 
-###Ingredients
+### Ingredients
 
 [-] 200 tbsp olive oil  
 [-] 2000 ml almond or rice milk  
@@ -23,7 +23,7 @@ This vegan French toast is a perfect mix of sweet and savoury a great easy brunc
 [-] Optional --- some extra toast  
 [-] Optional --- 6 spoons of apple jam instead of 4
 
-###Directions
+### Directions
 
 - Put all the ingredients except the bread, oil and banana into a blender and whiz together until smooth. Pour into a wide bowl with a flat bottom and soak the bread in this mixture, moving it around and turning, making sure that the bread really absorbs the liquid.
 
